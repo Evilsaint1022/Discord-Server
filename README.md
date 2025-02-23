@@ -5,7 +5,7 @@ The purpose of making this discord bot open source is to show that there is no m
 if you need any help at all regarding the discord bot code please dm me.   
 `@evilsaint1022`
 
-# _Evilsaitn1922 Discord Invite_   
+# _Evilsaitn1022 Discord Invite_   
 https://discord.com/invite/8WyM7UDVQb                              
 ‎ 
 ‎ 
